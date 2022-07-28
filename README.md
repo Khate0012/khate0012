@@ -1,7 +1,8 @@
 ### Hi there 👋
 
 <!--
-**Khate0012/khate0012** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Khate0012/khate0012** is a ✨ _special_ 
+Analyst. Dream Catcher Goal Achiever✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
